@@ -6,16 +6,10 @@
 
 ## Contato
 
-Eliézer Zarpelão
+Liliane Rodrigues
 
-Linkedin:  [br.linkedin.com/in/eliezerzarpelao](http://br.linkedin.com/in/eliezerzarpelao)
+Linkedin:  [br.linkedin.com/in/eliezerzarpelao](https://www.linkedin.com/in/lilianerodriguess)
 
-WebSite:  [eliezerzarpelao.eti.br](https://eliezerzarpelao.eti.br)
+Instagram:  [instagram.com/eliezerzarpelao](https://instagram.com/eualika)
 
-Instagram:  [instagram.com/eliezerzarpelao](https://instagram.com/eliezerzarpelao)
-
-YouTube:  [youtube.com/channel/UC47RD-s-U6fpKTY0soIUn6g](https://www.youtube.com/channel/UC47RD-s-U6fpKTY0soIUn6g/featured?view_as=subscriber)
-
-Twitter:  [@eliezerzarpelao](https://twitter.com/eliezerzarpelao)
-
-Github:  [github.com/elizarp](https://github.com/elizarp)
+Github:  [github.com/elizarp](https://github.com/LilianeRodriguesPamplona)
