@@ -8,8 +8,8 @@
 
 Liliane Rodrigues
 
-Linkedin:  [br.linkedin.com/in/eliezerzarpelao](https://www.linkedin.com/in/lilianerodriguess)
+Linkedin:  [https://www.linkedin.com/in/lilianerodriguess]
 
-Instagram:  [instagram.com/eliezerzarpelao](https://instagram.com/eualika)
+Instagram:  [https://instagram.com/eualika]
 
-Github:  [github.com/elizarp](https://github.com/LilianeRodriguesPamplona)
+Github:  [https://github.com/LilianeRodriguesPamplona]
